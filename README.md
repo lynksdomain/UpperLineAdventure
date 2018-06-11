@@ -8,3 +8,5 @@ The powerful mage that trades having lower HP for a powerful attack and the abil
 The sneaky hunter who can take a chance to hideand strike when the enemy wants to attack <br/>
 
 *make your choice and see if you can defeat the legendary dragon that lies within or be another name on its list...*
+
+![Alt Text](https://media.giphy.com/media/w85Rg22rw6qtNrfaPv/giphy.gif)
